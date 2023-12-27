@@ -36,6 +36,6 @@
 
  
 
- [![Whatsapp](https://img.shields.io/badge/Whatsapp-HAMII-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+919971945685)
+ [![Whatsapp](https://img.shields.io/badge/Whatsapp-MR.MAFIYA-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+919971945685)
 
  
